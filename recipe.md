@@ -1,0 +1,1 @@
+in a pan take 2 tbs of oil, add chopped garlic and let it fry, then add your sauces mixture, 1 tbs soy sauce, 2 tbs honey, 1 tbs vinegar, 1 to 2 tbs red chilli sauce, a little bit of ketchup, stir them well, add salt as per taste and a little chilli flakes and black pepper. add your boiled noodles and stir fry everything. 
